@@ -1,0 +1,1 @@
+# hira_property
